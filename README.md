@@ -1,2 +1,4 @@
 # Alle-Tipps-und-Cheats-f-r-Handyspiele
 Ich werde versuchen, alle wichtigen (meiner Meinung nach) Cheats und Tipps für alle mir bekannten Handyspiele zu sammeln.
+
+Da ich selbst eine große Anzahl von Handyspielen spiele, möchte ich Ihnen eine Seite mitteilen, auf der ich von Zeit zu Zeit interessante Programme finde, mit denen ich bei diesen Spielen helfen kann, die meiner Meinung nach am schwierigsten sind. Natürlich gibt es viele solcher Spiele, aber die speziellsten Beispiele sind ohne Zweifel Klondike, Hempire und Toon Blast. Eine große Anzahl von Missionen, eine begrenzte Menge an Ressourcen und immer schwierigere neue Ereignisse lassen mich das Spielen dieser Spiele ganz aufgeben. Dies ändert jedoch nichts an der Tatsache, dass ich nach dem Auffinden der Cheatseite für diese Spiele wieder Lust hatte, in meiner Freizeit ein bisschen zu spielen. Die Cheats-Website, die ich momentan benutzen, ist https://www.beste-cheats.de/
